@@ -1,1 +1,0 @@
-# gmadges.github.io
